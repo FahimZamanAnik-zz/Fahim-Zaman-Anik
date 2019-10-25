@@ -1,2 +1,2 @@
-# Fahim-Zaman-Anik
+# Fahim Zaman Anik
 BI Analyst | Bangladesh
